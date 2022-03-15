@@ -1,4 +1,4 @@
-![IMC-Google-Chrome-2022-01-11-10-28-49-_online-video-cutter com_](https://user-images.githubusercontent.com/78287356/148952586-79e9da34-c042-4f7b-8397-693bf6fde09b.gif)
+!https://user-images.githubusercontent.com/78287356/158283840-bc991756-0087-445c-b628-a031eee78d86.mp4
 
 ### Página promocional com itens Samsung
 
