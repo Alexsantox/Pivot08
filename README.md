@@ -1,4 +1,6 @@
-!https://user-images.githubusercontent.com/78287356/158283979-3dbfca38-89f8-4b2e-b402-a741d830a51a.mp4
+
+
+https://user-images.githubusercontent.com/78287356/158283979-3dbfca38-89f8-4b2e-b402-a741d830a51a.mp4
 
 ### Página promocional com itens Samsung
 
